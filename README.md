@@ -2,7 +2,7 @@
 
 
 🎓 Cursando:
-- Sistemas de Informação pela Toledo Prudente Centro Universitário (7º Termo)
+- Sistemas de Informação pela Toledo Prudente Centro Universitário (8º Termo)
   
 
 🔧 Habilidades:
